@@ -34,13 +34,13 @@ You may be asked to access other materials, ie. film adaptations, either at the 
 
 **Assignment Weights and Due Dates (Subject to Change, with Notice):**   
 
-| --- | --- | --- | --- |
-| Assignment | Worth | Comments | Due Date(s) |
+| Assignment              | Weight | Notes | Due Date(s)                                                                |
+|-------------------------|-------|--------------|---------------------------------------------------------------------------|
 Essay #1 | 20% | ~1200 words | Due Feb. 15, 2017 11:59pm
 Essay #2 | 20% | ~1200 words | April 12, marked *with* comments; April 19, marked *without* comments |
 Exam #1 | 15% | Timed, 1.5 hours, short answer close reading | Feb. 22, 2017 available for 24 hours starting at 5am Feb. 22, 2017 |
-Exam #2 | 15% | In-person at New West Campus, date TBA or proctored (see * below) | Please contact me ASAP if you will be writing the final exam remotely (not in person) |
-Reading Response Blog Posts | 20% | two blog posts of ~500 words on two different texts we cover in the course, each worth 10% | Various Due Dates | 
+Exam #2* | 15% | In-person at New West Campus, date TBA or proctored (see below) | Please contact me ASAP if you will be writing the final exam remotely (not in person) |
+Reading Response Blog Posts | 20% | Two blog posts of ~500 words on two different texts we cover in the course, each worth 10% | Various Due Dates | 
 Weekly Discussion Questions | 10% | Groups will lead group discussions on two assigned texts, each worth 5% | Various Due Dates, determined by group placement | 
 
 *Please note that all English classes at Douglas College require an in-person, in-class writing component. Those of you who are in the Greater Vancouver area will come to the New Westminster campus of Douglas College to write the final exam. The exam is scheduled by the College and cannot be rescheduled for any reason. Please do not make plans to be away from campus before the end of the formal exam period (December 7-15, inclusive).
