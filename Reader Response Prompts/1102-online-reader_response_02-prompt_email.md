@@ -1,9 +1,4 @@
-Reader Response Blog Post Prompt #1 - Google (Group #1)
-*Mr. Penumbra's 24-Hour Bookstore*
-Class Module #3
-Due: Jan. 18, 2017 - No later than 5pm - Blackboard Blog 
-
-Instructions:Write a Reader Response Blog Post that, while keeping in mind the definitions of [figurative language](https://en.wikipedia.org/wiki/Literal_and_figurative_language), [symbol](https://en.wikipedia.org/wiki/Symbol), and [imagery](https://en.wikipedia.org/wiki/Image#Imagery_.28literary_term.29) generally, introduces us to a *new* symbol in *Mr. Penumbra's 24-Hour Bookstore*. 
+Write a Reader Response Blog Post that, while keeping in mind the definitions of [figurative language](https://en.wikipedia.org/wiki/Literal_and_figurative_language), [symbol](https://en.wikipedia.org/wiki/Symbol), and [imagery](https://en.wikipedia.org/wiki/Image#Imagery_.28literary_term.29) generally, introduces us to a *new* symbol in *Mr. Penumbra's 24-Hour Bookstore*. 
 
 What You'll Need To Do To Pull This Off Successfully: 
 
